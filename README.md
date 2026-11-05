@@ -1,2 +1,0 @@
-# CER2-GONZALEZGUSTAVO
-certamen 2
